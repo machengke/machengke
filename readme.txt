@@ -4,4 +4,4 @@ mama  chengke
 shiqiuqqni love you
 hah
 i love qiuqiu                                                  
-creating a new branch is quick
+creating a new branch is quick & simple
