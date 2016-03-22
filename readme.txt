@@ -5,5 +5,4 @@ shiqiuqqni love you
 hah
 i love qiuqiu
 high great
-new2
-                                                  
+new2 and new1                               
